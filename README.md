@@ -13,9 +13,7 @@ This summer, I first went to Europe for a cruise. I was on the cruise with my fa
 
 After the cruise, we stayed at Rome to visit some iconic places such as the Colosseum, Saint Peter's Basilica etc. Then, me, my mom, and my brother flew to Taiwan. There, I did a SAT class for 3 weeks with my friend and visited some family. After the three weeks, I flew back to America alone with my friend, and we went to our swim *championships* competition, participating in relays.
 
-My favorite summer memory with my friends is when they surprised me for my birthday and we had fun at the country club together swimming. Something that made this special was that they planned this all by themselves and kept it a surprise from me and we had a lot of fun doing something so simple.
-
-Some of my personal achievements is getting to the highest level in my piano and finishing with almost State Honors every year. Another one of my personal achievements is qualifying for different swim championships and medaling in different events.
+My favorite summer memory with my friends is when they surprised me for my birthday and we had fun at the country club together swimming. Something that made this special was that they planned this all by themselves and kept it a surprise from me and we had a lot of fun doing something so simple. Some of my personal achievements is getting to the highest level in my piano and finishing with almost State Honors every year. Another one of my personal achievements is qualifying for different swim championships and medaling in different events.
 
 Playlist:
 
